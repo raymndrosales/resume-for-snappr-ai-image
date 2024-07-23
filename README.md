@@ -1,0 +1,1 @@
+# resume-for-snappr-ai-image
